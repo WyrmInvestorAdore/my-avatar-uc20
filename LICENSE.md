@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar best Scripts, the #1 Script. Includes no clip and auto-collect for unbeatable performance.
 
 
 
